@@ -1,1 +1,0 @@
-# jewelabbate.github.io
